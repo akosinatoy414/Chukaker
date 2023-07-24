@@ -1,0 +1,2 @@
+# Chukaker
+Gwapo ra gyapon
